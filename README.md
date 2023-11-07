@@ -1,1 +1,1 @@
-# rsschool-cv
+https://athanasiia.github.io/rsschool-cv/cv
